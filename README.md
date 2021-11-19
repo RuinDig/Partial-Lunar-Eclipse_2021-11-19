@@ -1,5 +1,5 @@
 # Partial-Lunar-Eclipse_2021-11-19
-部分月食 Partial Lunar Eclipse 2021.11.19
+2021年11月19日の日本での部分月食 Partial Lunar Eclipse 2021.11.19 in Japan
 
 ![Partial-Lunar-Eclipse_2021-11-19_01](https://user-images.githubusercontent.com/20723919/142630610-a4ffc1ad-6743-4412-bdc8-3e3036f40339.jpg)
 
